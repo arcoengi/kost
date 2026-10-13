@@ -6,7 +6,7 @@
 ДАННЫЕ
 Константин Глухов
 Руководитель отдела монтажа
-+7 (925) 406-88-74
++7 (925) 410-29-05
 k.glukhov@arcoengi.ru
 Личный Telegram: https://t.me/Big_Bald_Man
 Telegram компании: https://t.me/arcoengi
